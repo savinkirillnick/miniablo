@@ -1,0 +1,2 @@
+MINIABLO
+Diablo on minimals
